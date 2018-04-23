@@ -4,7 +4,7 @@
 Återigen är det dags att dra på sig utrustningen, kamma till den mängd hår man än har och stryka till mysbyxorna.
 Alltså, en regelrätt Memento Mori träff.
 
-Årets aktivitet går i fyra akter.
+Årets aktivitet går i sex akter.
 
 ## Akt 1 - The second element
 Vi träffas klockan 10:35 exakt här
