@@ -30,12 +30,17 @@ Ni skall införskaffa lämplig förfriskning och snacks som funkar att sörpla o
 ## Akt 4 - Wine and dine
 Från 17:00 är restaurangen öppen och där väntar en trerätters måltid!
 
+Klädsel: Ut-och-äta-stassen. 
+
 ## Akt 5 - FINALLY
 Det finns en sak jag har tjatat om varje gång. BADTUNNA. Nu kommer den. På med badbyxan eller mankinin, marinering väntar.
+
+Klädsel: Bad
 
 ## Akt 6 - Wind down or up?
 Vi drar oss tillbaka till logementet och krispar på lite snacks, snackar lite skit och har det gött.
 
+Klädsel: Helst.
 
 Och där - mina vänner är det slut. Blir inte mer. Finito.
 
