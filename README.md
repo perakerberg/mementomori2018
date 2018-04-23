@@ -18,7 +18,7 @@ Klädsel: Oömma, för utevistelse. Är det kallt - ta på er extra. Väta kan f
 ## Akt 2 - In the name of Beal
 Klockan 14:30 väntar nästa aktivitet.
 Här är det bra med lite sportiga kläder, återigen för utomhusvistelse. Kläder att svettas rimliga mängder i. Gärna sportiga skor.
-Kanske samma som i Akt 1 - men för mer fysisk rörelse. Ridstövlar kan funka, men är nog inte mitt förstahandsval. Jag kör nog löparpjux.
+Kanske samma som i Akt 1 - men för mer fysisk rörelse. Ridstövlar kan funka, men är nog inte mitt förstahandsval. Jag kör nog löparpjux. Men ta det lugnt, ingen löprunda eller friskis-pass. Vi bestämmer helt själva över tempo.
 
 ## Akt 3 - Recovery
 15:30 är det slut på svett och förhoppningsvis blod.
